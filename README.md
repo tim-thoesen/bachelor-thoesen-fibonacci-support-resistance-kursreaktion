@@ -1,0 +1,1 @@
+# bachelor-thoesen-fibonacci-support-resistance-kursreaktion
